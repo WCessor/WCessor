@@ -2,7 +2,7 @@
 - 👀 I’m interested in philosophy and video games!
 - 🌱 I’m currently learning mips assembly language.
 - 💞️ I’m looking to collaborate on ANYTHING!
-- 📫 How to reach me 361-649-4418
+- 📫 How to reach me 512-757-4823
 
 <!---
 WCessor/WCessor is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
